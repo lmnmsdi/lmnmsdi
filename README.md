@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on assignments when others or myself need a "hive mind" to be successful!
 - 📫 How to reach me on Slack > meredith.sweeney.lmnm 
 Git > @meredithsweeneylmnmstatefarm 
-SDI Outlook > meredithsweeneySDI@outlook.com
+SDI Outlook > MSWEENEYSDI@outlook.com
 Internal IM or Email > LMNM
 
 <!---
